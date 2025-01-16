@@ -13,13 +13,13 @@ I am very curious and like to explore many different things that are sometimes t
 - a showcase site that I'm currently designing on Figma and will build with Next
 
 ### Interests
-:sparkles: I have a knack for design and user experience and looove learning about it. 
+:sparkles: I have a knack for design and user experience and looove learning about it.   
 I'm also into books, films and photography or anything visual really. 
 
 ### Miscellaneous
 
-:musical_note: Currently listening to Lola Young - Messy.
-:movie_camera: Last movie I watched : Nosferatu . 
+:musical_note: Currently listening to Lola Young - Messy  
+:movie_camera: Last movie I watched : Nosferatu  
 
 
 <!--
