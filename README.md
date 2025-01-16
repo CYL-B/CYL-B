@@ -18,8 +18,8 @@ I'm also into books, films and photography or anything visual really.
 
 ### Miscellaneous
 
-:musical_note: Currently listening to Lola Young - Messy
-:movie_camera: Last movie I watched : Nosferatu 
+:musical_note: Currently listening to Lola Young - Messy.
+:movie_camera: Last movie I watched : Nosferatu . 
 
 
 <!--
