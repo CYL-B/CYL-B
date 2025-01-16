@@ -1,4 +1,26 @@
-## Hi there 👋
+## The Secret Life of Camille :cloud:
+### About me
+Hello ! 
+
+I'm Camille and I'm a web developer who specialises in javascript (and javascript frameworks). 
+
+I am very curious and like to explore many different things that are sometimes totally unrelated. 
+
+### Projects
+
+:construction_worker: I'm working on several projects including : 
+- a productivity app called Concentraction and developed with React
+- a showcase site that I'm currently designing on Figma and will build with Next
+
+### Interests
+:sparkles: I have a knack for design and user experience and looove learning about it. 
+I'm also into books, films and photography or anything visual really. 
+
+### Miscellaneous
+
+:musical_note: Currently listening to Lola Young - Messy
+:movie_camera: Last movie I watched : Nosferatu 
+
 
 <!--
 **CYL-B/CYL-B** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
