@@ -18,8 +18,9 @@ I'm also into books, films and photography or anything visual really.
 
 ### Miscellaneous
 
-:musical_note: Currently listening to Lola Young - Messy  
-:movie_camera: Last movie I watched : Nosferatu  
+:musical_note: Currently listening to Fontaines D.C. - I love you  
+:movie_camera: Last movie I watched : Babygirl  
+📖 Also reading **Parable of the Sower** by Octavia Butler
 
 
 <!--
