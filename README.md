@@ -19,7 +19,7 @@ I'm also into books, films and photography or anything visual really.
 ### Miscellaneous
 
 :musical_note: Currently listening to Fontaines D.C. - I love you  
-:movie_camera: Last movie I watched : Babygirl  
+:movie_camera: Last movie I watched : A complete unknown  
 📖 Also reading **Parable of the Sower** by Octavia Butler
 
 
