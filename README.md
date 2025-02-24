@@ -18,9 +18,9 @@ I'm also into books, films and photography or anything visual really.
 
 ### Miscellaneous
 
-:musical_note: Currently listening to Fontaines D.C. - I love you  
-:movie_camera: Last movie I watched : A complete unknown  
-📖 Also reading **Parable of the Sower** by Octavia Butler
+:musical_note: Currently listening to Doechii - Nosebleeds 
+:movie_camera: Last movie I watched : Companion  
+📖 Also reading **L'île aux arbres disparus** by Elif Shafak
 
 
 <!--
