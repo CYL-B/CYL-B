@@ -18,7 +18,7 @@ I'm also into books, films and photography or anything visual really.
 
 ### Miscellaneous
 
-:musical_note: Currently listening to Doechii - Nosebleeds 
+:musical_note: Currently listening to Doechii - Nosebleeds  
 :movie_camera: Last movie I watched : Companion  
 📖 Also reading **L'île aux arbres disparus** by Elif Shafak
 
