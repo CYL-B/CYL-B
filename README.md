@@ -18,7 +18,7 @@ I'm also into books, films and photography or anything visual really.
 
 ### Miscellaneous
 
-:musical_note: Currently listening to the Rolling Stones - Under my Thumb \
+:musical_note: Currently listening to Tamino - Babylon \
 :movie_camera: Currently watching  : the White Lotus \
 📖 Also reading **L'île aux arbres disparus** by Elif Shafak
 
