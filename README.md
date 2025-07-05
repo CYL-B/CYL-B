@@ -18,9 +18,9 @@ I'm also into books, films and photography or anything visual really.
 
 ### Miscellaneous
 
-:musical_note: Currently listening to Tamino - Babylon \
-:movie_camera: Currently watching  : Mickey 17 \
-📖 Also reading **L'île aux arbres disparus** by Elif Shafak
+:musical_note: Currently listening to NUEVAYol - Bad Bunny \
+:movie_camera: Currently watching  : The Pitt \
+📖 Also reading **Yellow Face** by R.F. Kuang
 
 
 <!--
