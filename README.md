@@ -18,8 +18,8 @@ I'm also into books, films and photography or anything visual really.
 
 ### Miscellaneous
 
-:musical_note: Currently listening to NUEVAYol - Bad Bunny \
-:movie_camera: Currently watching  : The Pitt \
+:musical_note: Currently listening to Berghain - Rosalia \
+:movie_camera: Currently watching  : Frankeinstein \
 📖 Also reading **Yellow Face** by R.F. Kuang
 
 
